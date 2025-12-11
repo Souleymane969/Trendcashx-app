@@ -1,0 +1,1 @@
+# Trendcashx-app
